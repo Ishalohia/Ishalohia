@@ -24,7 +24,7 @@
 - 📫 How to reach me **ishalohia478@gmail.com** <br>
 - ⚡ Fun fact :-** I love to learn new technologies.**
 - 👉 My Leetcode Profile :- **[Leetcode](https://leetcode.com/ishalohia478/)** <br>
-- 🙌🏽My Resume :- **[Resume](https://drive.google.com/file/d/1Jb5Vj-sIsALgcHRVFl5a8SILFiTdDBIr/view?usp=share_link)** <br>
+- 🙌🏽My Resume :- **[Resume](https://drive.google.com/file/d/1DCveBMHdZBuSwBQRQHYiDQLSBA_y1BxO/view?usp=sharing)** <br>
 - 🕺🏼 My Hobbies :- **Travelling, Playing Badminton, Reading** <br>
 - 🥅 2024 Goals: **To get Placed :)** <br>
 
